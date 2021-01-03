@@ -1,2 +1,3 @@
 # cooking
-cooking notes, because why not
+
+where better place to put it am I right
