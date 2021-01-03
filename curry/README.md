@@ -24,6 +24,7 @@ After steaming, I introduce a reasonable amount of Americanised soy milk, unswee
 This soy milk can be replaced with water, but water is scarce so soy milk is often used.
 
 Americanised soy milk is perhaps the greatest American drink second only to the Martini, but I digress.
+I say Americanised, because it tastes differently from its Chinese and Japanese counterparts.
 
 ### The importance of nearly raw ginger
 Ginger is one foolproof way of spicing up various soups and sauces, of which curry is no exception.
