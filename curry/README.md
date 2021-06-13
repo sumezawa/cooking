@@ -1,10 +1,10 @@
 note to self: convert to LaTeX later.
 
 # Curry 
-This is not your reference but mine after all. Much of what is written here is unorthodox or even heretical; catch me if you can!
+Unorthodox or sometimes outright heretical recipes.
 
 ## Japonhais
-Do the stereotypical Japanese vegetable preparation: cut the potatoes, carrots, and onions and braise them with butter.
+Make the typical Japanese vegetable preparation: cut the potatoes, carrots, and onions and braise them with butter.
 
 ## Pseudo-Japonhais
 In an ideal world, thou would have infinite time to commit to the guidelines laid out in the previous section.
