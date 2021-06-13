@@ -23,7 +23,7 @@ Steam these (along with other things, although only the bottom items will be in 
 After steaming, I introduce a reasonable amount of Americanised soy milk, unsweetened, before I put the steamed vegetables in a mixer and grind them.
 This soy milk can be replaced with water, but water is scarce so soy milk is often used.
 
-Americanised soy milk is perhaps the greatest American drink second only to the Martini, but I digress.
+Americanised soy milk is perhaps the greatest American drink second only to the ~~Martini~~ Tabasco sauce, but I digress.
 I say Americanised, because it tastes differently from its Chinese and Japanese counterparts.
 
 ### The importance of nearly raw ginger
